@@ -1,1 +1,1 @@
-My first readme
+Zohrab & Neriman yaxsi oglandi
