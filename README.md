@@ -1,1 +1,1 @@
-MY first read me
+Zohrab & Neriman yaxsi oglandi
